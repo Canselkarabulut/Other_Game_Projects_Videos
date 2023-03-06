@@ -1,4 +1,3 @@
-# Other_Game_Projects_Videos
 Other_Game_Projects_Videos
 
 Walking Security:
