@@ -10,7 +10,7 @@ https://user-images.githubusercontent.com/90397911/223101098-51f3fb12-f6a3-415f-
 
 HellIdle
 
-
+https://user-images.githubusercontent.com/90397911/224045725-ebd23617-a448-4b4e-9e98-7601c1d295e6.mp4
 
 Gate Thrower
 
